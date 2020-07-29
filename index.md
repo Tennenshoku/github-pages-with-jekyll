@@ -1,3 +1,3 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+It's a an isolated island in the Ocean of Bordom, as I am trying as far as I can go,
